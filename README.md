@@ -1,6 +1,6 @@
 ## Hi, i'm Oladapo Odedeyi Olayinka
 
-i make on [instagram](https://www.instagram.com/deetechwiz)
+i make videos on [instagram](https://www.instagram.com/deetechwiz)
 i make videos on [Youtube](https://www.youtube.com/@cryptotechcoder)
 
 
